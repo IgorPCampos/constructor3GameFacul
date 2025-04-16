@@ -36,3 +36,4 @@ Divirta-se explorando os cenários, derrotando porcos e superando desafios!
 ![image](https://github.com/user-attachments/assets/79b7ec4f-4739-4739-b399-ee15aa5f618a)
 ![image](https://github.com/user-attachments/assets/00efb18e-63ab-48a3-819b-dfbb393b84e2)
 ![image](https://github.com/user-attachments/assets/15b87a93-25f9-4526-ae7b-685526452636)
+![image](https://github.com/user-attachments/assets/7df48523-9dee-45b1-a823-54c1d3a93496)
